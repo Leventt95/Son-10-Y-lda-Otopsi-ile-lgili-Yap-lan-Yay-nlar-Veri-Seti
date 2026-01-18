@@ -1,0 +1,1 @@
+# Son-10-Y-lda-Otopsi-ile-lgili-Yap-lan-Yay-nlar-Veri-Seti
