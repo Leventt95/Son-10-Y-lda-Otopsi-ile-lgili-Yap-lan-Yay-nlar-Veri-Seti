@@ -1,1 +1,1 @@
-# Son-10-Y-lda-Otopsi-ile-lgili-Yap-lan-Yay-nlar-Veri-Seti
+# Son-10-Yilda-Otopsi-ile-lgili-Yapilan-Yayinlar-Veri-Seti
